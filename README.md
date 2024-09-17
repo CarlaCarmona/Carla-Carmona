@@ -8,3 +8,4 @@
 - Videojocs 👾
 ### Estudis
 - Títol de Batxillerat científic, Institut Cendrassos
+- Certificat de Cambridge English nivell B2
