@@ -6,3 +6,5 @@
 - Dissenyar i crear "Cosplays" 👘
 - Participar en Rol en viu o "Larp" ⚔️
 - Videojocs 👾
+### Estudis
+- Títol de Batxillerat científic, Institut Cendrassos
